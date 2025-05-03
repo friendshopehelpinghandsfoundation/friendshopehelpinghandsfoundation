@@ -34,6 +34,7 @@ All event photos, videos, reels, posters, and banners are being compiled under t
 - **One-Time Donation via Razorpay**:
   - [Link 1](https://razorpay.me/@friendshopehelpinghandsfo2737)
   - [Link 2](https://rzp.io/rzp/HOPEFOUNDATION)
+  - [Link 3](https://www.hopehelpinghands.com/p/subscription)
 
 ---
 
